@@ -1,2 +1,0 @@
-# Dindy
-Growth MP
